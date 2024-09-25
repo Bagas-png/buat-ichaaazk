@@ -1,2 +1,2 @@
-# buat-ichaaazk
-hbd
+# bungaa-abadi
+buat siapa aja
